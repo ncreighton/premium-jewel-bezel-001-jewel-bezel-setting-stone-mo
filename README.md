@@ -1,0 +1,2 @@
+# premium-jewel-bezel-001-jewel-bezel-setting-stone-mo
+Tired of losing track of which stone goes with which bezel setting, or scrambling to find that one mount you know you ordered? The Jewel Bezel Setting &amp; Stone Mount Craft Studio brings order to your workshop chaos.  This Notion template is built specifically for jewelers and crafters who work with bezel settings and stone mounts. It replaces sticky
